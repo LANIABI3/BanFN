@@ -1,0 +1,2 @@
+# BanFN
+BanFN,if u get banned you can use this alternative 
